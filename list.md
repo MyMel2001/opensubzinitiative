@@ -1,3 +1,5 @@
+# NOTE: THIS LIST IS *VERY* OUT OF DATE.
+
 https://www.youtube.com/channel/UC1s1OsWNYDFgbROPV-q5arg
 Michael Horn
 ___
